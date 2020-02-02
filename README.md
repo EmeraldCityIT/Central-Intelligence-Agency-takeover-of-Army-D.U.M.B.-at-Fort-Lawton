@@ -1,2 +1,2 @@
 # Central-Intelligence-Agency-takeover-of-Army-D.U.M.B.-at-Fort-Lawton
-The human trafficking cartel Central Intelligence agency Serco and China are running an underground organ transplant clinic in the "VA Hospital" at fort lawton.
+The human trafficking cartel Central Intelligence agency Serco and China are running an underground organ transplant clinic in the "VA Hospital" at fort lawton. Tunnels are used to supply organs delivered through Seattle mainline sewage lines from Interbay Pump House, Interbay Self Storage, Seattle Secret Service / China Freight, Bell Harbor Convention Center, Port of Seattle, and Seattle National Guard Armory.
